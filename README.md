@@ -21,8 +21,8 @@ I'm passionate about crafting clear, efficient solutions to complex problems. I 
 
 ---
 
-## 🎯 Hobbies & Interests
+## 🎯 Hobbies
 
-💬 _"To face a challenge, you need a little bit of love for what you do and a little bit of arrogance about who you are."_  
+💬 _"Love what you do, and be just arrogant enough to believe you’re the one who can do it."_  
 
 ⚽ Football 🧗 Climbing 🏃 Running 🥅 Foosball 🥊 Boxing 🎮 Gaming 🌍 Traveling
