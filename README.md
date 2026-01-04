@@ -17,7 +17,7 @@ I'm passionate about crafting clear, efficient solutions to complex problems. I 
 
 ## 📄 Resume
 
-📎 [View My Resume](https://drive.google.com/file/d/1HAuz__W4pFusoD8vIWR5EvbsTjUpENcL/view?usp=sharing)
+📎 [View My Resume](https://drive.google.com/file/d/1-UrvENTGzWqo9W9gy0wxwPfj9Cha4Una/view?usp=sharing)
 
 ---
 
